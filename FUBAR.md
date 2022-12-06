@@ -95,3 +95,13 @@ Why can't we all just get along?
 
 What you waiting, what you waiting, what you waiting, what you waiting fooooooooor? Tick tack tick tack 
 
+This is what Ted & Alice made:
+
+La-la-la-la-la-la-la-la
+La-la-la-la-la-la-la-la
+La-la-la-la-la-la-la-la
+La-la-la-la-la-la-la-la
+I just can't get you out of my head
+Boy, your lovin' is all I think about
+I just can't get you out of my head
+Boy, its more than I dare to think about
