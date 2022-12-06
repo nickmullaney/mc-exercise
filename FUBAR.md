@@ -78,3 +78,11 @@ This ish is bananas, B-A-N-A-N-A-S!
 
 Here goes my favorite Gwen Stefani song!
 
+When everything is going wrong
+And you can't see the point of going on
+Nothing in life is set in stone
+There's nothing that can't be turned around
+Nobody wants to feel alone
+Everybody wants to love someone
+Out of the tree, go pick a plum
+Why can't we all just get along?
