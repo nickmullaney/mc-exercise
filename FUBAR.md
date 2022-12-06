@@ -72,3 +72,9 @@ I'm walking into spiderwebs
 Leave a message and I'll call you back (I screen my phonecalls)
 I'm walking into spiderwebs
 Leave a message and I'll call you back
+
+This ish is bananas, B-A-N-A-N-A-S!
+
+
+Here goes my favorite Gwen Stefani song!
+
