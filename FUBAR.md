@@ -183,4 +183,9 @@ I just can't get you out of my head
 Boy, its more than I dare to think about
 y 
 
-My milkshake brins all the boys to the yard 
+My milk shake brings all the boys to the yard,
+And there like,
+Its better than yours,
+Damn right its better than yours,
+I can teach you,
+But I have to charge
